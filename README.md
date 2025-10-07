@@ -31,7 +31,7 @@
 ![Ubuy](09.png)
 <br><br>
 
-# >Content Management System | HTML Sitemap - Shop From India
+# Content Management System | HTML Sitemap - Shop From India
 
 ![Ubuy](10.png)
 <br><br>
@@ -39,12 +39,20 @@
 ![Ubuy](11.png)
 <br><br>
 
-# >Track Your sfi Order Online Instantly | sfi Global
+# Track Your sfi Order Online Instantly | sfi Global
 
 ![Ubuy](12.png)
 <br><br>
 
 ![Ubuy](13.png)
+<br><br>
+
+# Learn About Custom Duties & Taxes | Shop from India Global
+
+![Ubuy](14.png)
+<br><br>
+
+![Ubuy](15.png)
 <br><br>
 
 
