@@ -7,7 +7,7 @@
 
 ![Ubuy](02.png)
 <br>
-# PageTitle: AboutUs
+# PageTitle: Discover About Shop From India | Your Global Shopping Partner | Shop From India Global
 
 ![Ubuy](03.png)
 <br><br>
