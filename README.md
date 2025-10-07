@@ -17,3 +17,16 @@
 
 ![Ubuy](05.png)
 <br><br>
+
+# Intellectual Property Rights & Usage Info | Shop from India Global
+![Ubuy](06.png)
+<br><br>
+
+![Ubuy](07.png)
+<br><br>
+
+![Ubuy](08.png)
+<br><br>
+
+![Ubuy](09.png)
+<br><br>
