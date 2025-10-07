@@ -110,4 +110,16 @@
 ![Ubuy](30.png)
 <br><br>
 
+# Shopping cart - Shop From India
+
+![Ubuy](31.png)
+<br><br>
+
+![Ubuy](32.png)
+<br><br>
+
+![Ubuy](33.png)
+<br><br>
+
+
 
