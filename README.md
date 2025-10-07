@@ -63,4 +63,12 @@
 ![Ubuy](17.png)
 <br><br>
 
+# Medical Supplements Disclaimer Information | Shop from India Global
+
+![Ubuy](18.png)
+<br><br>
+
+![Ubuy](19.png)
+<br><br>
+
 
