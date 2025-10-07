@@ -71,4 +71,13 @@
 ![Ubuy](19.png)
 <br><br>
 
+# Shop from India Easy Return Policy for Hassle-Free Shopping | Shop from India Global
+
+![Ubuy](20.png)
+<br><br>
+
+![Ubuy](21.png)
+<br><br>
+
+
 
