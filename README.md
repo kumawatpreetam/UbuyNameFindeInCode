@@ -55,5 +55,12 @@
 ![Ubuy](15.png)
 <br><br>
 
+# Shop from India Shipping Policy Explained | Shop from India Global
+
+![Ubuy](16.png)
+<br><br>
+
+![Ubuy](17.png)
+<br><br>
 
 
