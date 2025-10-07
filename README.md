@@ -89,6 +89,25 @@
 
 # My Account
 
+![Ubuy](24.png)
+<br><br>
 
+![Ubuy](25.png)
+<br><br>
+
+![Ubuy](26.png)
+<br><br>
+
+![Ubuy](27.png)
+<br><br>
+
+![Ubuy](28.png)
+<br><br>
+
+![Ubuy](29.png)
+<br><br>
+
+![Ubuy](30.png)
+<br><br>
 
 
